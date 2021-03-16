@@ -2,7 +2,7 @@
 
 -❥ I’m interested in twitch streaming and Video games (mainly minecraft)
 
--❥ How to reach me discord! my discord is NaphiraRed#1862 
+-❥ How to reach me: discord! my discord is NaphiraRed#1862 
 
 <!---
 NaphiraRed/NaphiraRed is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
